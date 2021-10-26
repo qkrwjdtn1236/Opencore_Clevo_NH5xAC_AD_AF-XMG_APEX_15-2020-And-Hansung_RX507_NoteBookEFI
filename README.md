@@ -1,0 +1,1 @@
+# Opencore_Clevo_NH5xAC_AD_AF-XMG_APEX_15-2020-And-Hansung_RX507_NoteBookEFI
